@@ -48,6 +48,6 @@
 
 **2012 , serve as Financial Planner at Jucai Sales Department, Beijing Branch, PING AN**
 
-**2011, serve as office assistant at New Oriental Education Xuncheng Network Technology Group **
+**2011, serve as office assistant at New Oriental Education Xuncheng Network Technology Group**
 
 **Prior 2011, freelancer**
