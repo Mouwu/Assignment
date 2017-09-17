@@ -6,7 +6,7 @@
 
 **Tel: +31 0612601568**
 
-**E-mail: m.wu_1_1@tilburguniversity.edu**  
+**E-mail: m.wu_1@tilburguniversity.edu**  
 
 ## Education
 **09/2016-02/2018    School of Economics and Management, Tilburg University**
@@ -19,7 +19,7 @@
 
 ## Honors And Awards
 
-**In 2007, took part in the Challenge Cup Research Opportunities Plan of Jilin University and won the third prize **
+**In 2007, took part in the Challenge Cup Research Opportunities Plan of Jilin University and won the third prize**
 
 **In 2005, won the third prize in the Challenge Cup Undergraduates Opportunities Plan of Jilin University, and also got the championship in the 2nd Economy Contacts**
 
